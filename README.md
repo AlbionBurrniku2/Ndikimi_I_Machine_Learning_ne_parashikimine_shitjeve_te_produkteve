@@ -1,0 +1,2 @@
+# Ndikimi_I_Machine_Learning_ne_parashikimine_shitjeve_te_produkteve
+Tema Diplomes
